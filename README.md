@@ -17,7 +17,7 @@ _VI | XX | MMII_
 - [pieces](https://drive.google.com/drive/folders/1cCEke-TWFTla1SLTt_YBadDWkueij1j3?usp=sharing)
 
 
-<h3>⚡ Personal Playlists:</h3>
+<h3>🎵 Personal Playlists:</h3>
 
 - [opm chill](https://open.spotify.com/playlist/40zEvjWmDE6NMvee6lO1ds?si=90ed2d9a4fd74538)
 - [late night drive](https://open.spotify.com/playlist/74I58DapeLEPW5US4yOcbZ?si=a32b5bd673884e7a)
