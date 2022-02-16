@@ -11,7 +11,7 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...
 - 📫 How to reach me: ... [Discord] (https://discordapp.com/users/shyne#9038)
-- 😄 Pronouns: ... she/her
+- 😄 Pronouns: ... She/Her
 - ⚡ Personal Playlists ... [opm chill] (https://open.spotify.com/playlist/40zEvjWmDE6NMvee6lO1ds?si=90ed2d9a4fd74538)
 [late night drive] (https://open.spotify.com/playlist/74I58DapeLEPW5US4yOcbZ?si=a32b5bd673884e7a)
 [rest, love.] (https://open.spotify.com/playlist/16isCOZdFzRoaPCl8GuK14?si=1f3c988db9314ea3)
