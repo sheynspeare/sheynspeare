@@ -9,6 +9,7 @@ _VI | XX | MMII_
 <br>
 
 <h3>🌱 I’m currently studying ...</h3> 
+
 - Bachelor of Science in Computer Science
  
 
