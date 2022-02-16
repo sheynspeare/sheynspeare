@@ -2,7 +2,7 @@
 <img src = "yaho!.png">
 
 <h1>
-Get to Know Me! ✨
+Get to Know Me ✨
 </h1>
 
 _VI | XX | MMII_  
