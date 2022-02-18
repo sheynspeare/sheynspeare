@@ -25,6 +25,6 @@ _VI | XX | MMII_
 - [rest, love.](https://open.spotify.com/playlist/16isCOZdFzRoaPCl8GuK14?si=1f3c988db9314ea3)
 
 
-<h3>📫 How to reach me: ...</h3>
+<h3>📫 How to reach me:</h3>
 
 - [Discord - @shyne](https://discordapp.com/users/shyne#9038)
