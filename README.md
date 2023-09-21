@@ -1,5 +1,5 @@
 
-<img src = "yaho!.png" width="500" height="250">
+<img src = "yaho!.png" width="500" height="200">
 
 <h1>
 Get to Know Me ✨
